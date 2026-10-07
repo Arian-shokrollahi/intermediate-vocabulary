@@ -1,0 +1,18 @@
+سوالات درس
+- 1-1 How often can you spend at least half an hour or forty- five minutes on a unit?
+- **I can spend about 30 to 45 minutes on a unit every day.**  
+---
+- 2-2 How often can you revise? How much time can you spend when you revise? Where will you do it? 
+- I can revise three or four times a week. I can spend about 20 to 30 minutes each time. I will revise at home.
+---
+- 3-3 Which of these things do you do now when you are learning vocabulary?
+- **Now, I write down new words and review them regularly.**  
+---
+- 4-4 In the future, I will use new words in sentences and practice them more often.
+- In the future, I will use new words in sentences and practice them more often.
+---
+- 5-5Do you revise vocabulary that you study? If so,how often?
+- Yes, I do. I revise vocabulary every day for about 15 minutes.
+---
+- 6-Will you try to revise more often in the future?If so, will you use some of the ideas above?
+-  **Yes, I will. I will try to revise vocabulary more often and use some of the ideas above, such as making sentences with new words.**
